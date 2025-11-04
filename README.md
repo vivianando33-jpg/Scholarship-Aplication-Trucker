@@ -1,1 +1,0 @@
-# Scholarship-Aplication-Trucker
